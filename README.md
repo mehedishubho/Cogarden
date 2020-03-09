@@ -1,0 +1,2 @@
+# Cogarden
+Cogarden Garden and Landscaping Template is designed especially for Gardening, Landscaping Companies, Lawn Services, Agriculture, Landscape Architects and all type of Gardners Business and those who offer Garden related services. Cogarden template has the beautiful and unique design that will be best suited for your online web presence. It has 100% responsive design and tested on all major handheld devices.
